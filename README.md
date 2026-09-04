@@ -3,7 +3,7 @@
 - 👀 I’m interested in developing and modifying things!
 - 🌱 I’m graduated from President University
 - 💞️ I’m looking to collaborate on everywhere!
-- 📫 How to reach me : dm me on instagram @adamhjak
+- 📫 How to reach me : email me on adamhaidar252525@gmail.com
 
 ---
 
